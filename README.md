@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @foodtruck232
+- 👀 I’m interested in games you can play in ur browser
+- 🌱 I’m currently learning effective ways to copy/paste
+- 💞️ I’m looking to collaborate on nothin'
+- 📫 Don't reach me
